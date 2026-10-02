@@ -1,6 +1,6 @@
 <p align="center">
-  <img src="https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_26834779600125.gif" alt=" me" width="120">
-    <img src="https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_26836513583770.gif" alt=" myers" width="120">
+  <img src="https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_26834779600125.gif" alt=" me" width="140">
+    <img src="https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_26836513583770.gif" alt=" myers" width="140">
 </p>
 
 </p>
