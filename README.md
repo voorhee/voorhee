@@ -5,8 +5,9 @@
 
 </p>
 
-<div align=center> uhh what am I suppose to put here..
+<div align=center> osdd sys , he/it , semi verbal. 
+  not making this look pretty because lazy
 <div
   </p>
   
-![](https://file.garden/aiRQbQoBARDpXD-M/Something%20I%20found.jpg)
+  <img src="https://file.garden/aiRQbQoBARDpXD-M/Something%20I%20found.jpg" alt=" me" width="150">
