@@ -10,7 +10,7 @@
   not making this look pretty because lazy.
 <div
   </p>
- <div align=center> I love to c+h with people and having cuddle piles, i am semi-verbal, so don’t expect me to on carry conversations sometimes or speak very much, my silence comes naturally to me and my capacity to speak is limited, so i may make a convo die down, my demeanor can come across as blunt or quiet, it does not mean i am upset or anything, I just communicate that way.
+ <div align=center> I love to c+h with people and having cuddle piles, but is very shy sometimes, i am semi-verbal, so don’t expect me to on carry conversations sometimes or speak very much, my silence comes naturally to me and my capacity to speak is limited, so i may make a convo die down, my demeanor can come across as blunt or quiet, it does not mean i am upset or anything, I just communicate that way, and if you don't like it, then go away.
 <div
   </p>
     </p>
