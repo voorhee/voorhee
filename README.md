@@ -13,4 +13,8 @@
  <div align=center> I love to c+h with people and having cuddle piles, i am semi-verbal, so don’t expect me to on carry conversations sometimes or speak very much, my silence comes naturally to me and my capacity to speak is limited, so i may make a convo die down, my demeanor can come across as blunt or quiet, it does not mean i am upset or anything, I just communicate that way.
 <div
   </p>
+    </p>
+ <div align=center> bodily age is 16 so dont be weird 
+<div
+  </p>
   <img src="https://file.garden/aiRQbQoBARDpXD-M/tumblr_1c648bfeaf47f6768ac7cef1a35bb44b_89c02110_500.jpg" alt=" me" width="350">
