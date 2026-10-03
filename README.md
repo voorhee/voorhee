@@ -1,7 +1,7 @@
 <p align="center">
   <img src="https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_26834779600125.gif" alt=" me" width="140">
-    <img src="https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_26836513583770.gif" alt=" myers" width="140">
-  creds to micha3lmy3rs on tumblr
+    <img src="https://file.garden/aiRQbQoBARDpXD-M/Tumblr_l_26836513583770.gif" alt=" creds to micha3lmy3rs on tumblr" width="140">
+  
 </p>
 
 </p>
